@@ -1,0 +1,2 @@
+nnwekfejknejnjinifnewmdmwjdjemdjewdmeoeiodemwoemdoemoedmwe
+password = admin iododsjfoiodifooifiofsko
